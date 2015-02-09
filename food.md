@@ -2,7 +2,7 @@
 
 
 
-##Vegetarian and Vegan
+##Surviving as a vegetarian or vegan
 
 
 ##Quick list of favorite places:
