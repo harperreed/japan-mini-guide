@@ -2,7 +2,7 @@ Japan Mini-guide
 ====
 
 **TERRIBLY ORGANIZED**
-**IF YOU WANT TO HELP PLEASE EMAIL HARPER: HARPER@NATA2.ORG***
+**IF YOU WANT TO HELP PLEASE EMAIL HARPER: HARPER@NATA2.ORG**
 
 In 2006 when i started going to japan regularly, I couldn't find any quick and easy resources to help me understand how to handle japan. There were a lot of travel books, but nothing that really helped me figure out wtf japan was going to be like and how i could hack my japanese travel. 
 
