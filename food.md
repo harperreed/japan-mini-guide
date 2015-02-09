@@ -1,20 +1,16 @@
-##Food:
+#Food:
 
-###Awesome Food:
+
+
+##Vegetarian and Vegan
+
+
+##Quick list of favorite places:
 There are a lot of awesome places to dine in wonderful Tokyo. We have quite a few different favorite "haunts" that we have experienced in the last year of traveling to Tokyo and about. Specifically:
 
 - Rondo - Italian/Japanese. Really awesome italian place. - Great proprietors and a hilarious atmosphere
 - Macrobiotic restaurant - Great organic food place that hiromi loves and has excellent food. (need to get the name)
 
-These are terrible recs:
-- Fish Market/ Restaurant in Roppongi - Fish. Really nice - fish place. Quite good.
-- Christon Cafe - Japanese/Fine Dining - Christianity themed restaurant.
-- Noodle shops - Awesome noodle shops everywhere
-- Sumo Restaurant - A sumo themed restaurant
-- Ninja Restaurant - A ninja themed restaurant
-
-
-Obviously there are a lot of excellent places to eat in Tokyo. We can choose any number of nice, yet inexpensive and fun places.
 
 ###Easy Food:
 
