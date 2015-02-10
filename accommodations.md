@@ -1,7 +1,7 @@
 # Accommodations
 
-- Cheap places to stay
-- Not cheap places to stay
+- Cheap places to stay (tokyo)
+- Not cheap places to stay (tokyo)
 - Onsen
 - Country side
-- 
+- camping
