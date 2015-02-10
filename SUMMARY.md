@@ -7,7 +7,6 @@
 * [Fun](fun.md)
 * [Nightlife](nightlife.md)
 * [Kids in Japan](kids-in-japan.md)
-* [Pro-tips](protips.md)
 * [Accommodations](accommodations.md)
 * [Original Miniguide](mini-guide.md)
 
