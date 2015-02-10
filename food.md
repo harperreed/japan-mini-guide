@@ -12,6 +12,10 @@ Also will include a list of some of our favorite places.
 
 ##Surviving as a vegetarian or vegan
 
+(sean please add)
+
+Japan is a bit difficult to navigate 
+
 
 ##Quick list of favorite places:
 There are a lot of awesome places to dine in wonderful Tokyo. We have quite a few different favorite "haunts" that we have experienced in the last year of traveling to Tokyo and about. Specifically:
