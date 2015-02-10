@@ -8,5 +8,6 @@
 * [Nightlife](nightlife.md)
 * [Kids in Japan](kids-in-japan.md)
 * [Accommodations](accommodations.md)
+* [Traveling within Japan](traveling-within-japan.md)
 * [Original Miniguide](mini-guide.md)
 
