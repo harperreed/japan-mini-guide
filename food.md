@@ -1,6 +1,14 @@
 #Food:
 
+Japan has the best food in the world. It is a force to be reckoned with. Do not underestimate how awesome the food can be. 
 
+I don't think there is anyway to make a conversation about japan and food easy. I am going to attempt to at least cover my 3 most asked questions:
+
+1. Can i survive as a vegetarian or vegan?
+2. What is the best easy food?
+3. Where is the best food?
+
+Also will include a list of some of our favorite places. 
 
 ##Surviving as a vegetarian or vegan
 
