@@ -8,3 +8,4 @@ Things to cover:
 - Shitty bars that are insane and built for white people: robot restaurant
 - neighborhoods
 - karoake
+- touts
