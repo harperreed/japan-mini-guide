@@ -14,7 +14,22 @@ Also will include a list of some of our favorite places.
 
 (sean please add)
 
-Japan is a bit difficult to navigate 
+Japan is a bit difficult to navigate without some assitance but this hs gotten incredibly easier in recent years. There are countless vegan and vegetarian options all over the place if you know what to look for and a growing number of vegan exclusive spots.
+
+Best tip: Get the Happy Cow app. The list there is excellent and well maintained which is helpful finding things close to you when out and about. That said, here's some pro tips:
+
+### Easy & Everywhere
+
+* Family Mart
+* Any Sushi Place
+
+
+### Favorite All Vegan Spots
+
+* Nagi Shokudo
+* Brown Rice Cafe
+* Pure Cafe
+* T's Tantan
 
 
 ##Quick list of favorite places:
@@ -22,6 +37,7 @@ There are a lot of awesome places to dine in wonderful Tokyo. We have quite a fe
 
 - Rondo - Italian/Japanese. Really awesome italian place. - Great proprietors and a hilarious atmosphere
 - Macrobiotic restaurant - Great organic food place that hiromi loves and has excellent food. (need to get the name)
+- Draemon - brick oven bar/restaurant in Dogenzaka (near Shibuya) 
 
 
 ###Easy Food:
