@@ -20,9 +20,12 @@ Best tip: Get the Happy Cow app. The list there is excellent and well maintained
 
 ### Easy & Everywhere
 
-* Family Mart
+* Family Mart, Lawson Station and 7/11. Many Japanese people eat lunch here everyday. The food is actually quite good. 
 * Any Sushi Place
 
+### Best Ramen
+* Ippudo. A chain with restaurants all over the country. Very good.
+* Ichiran. Probably the best Ramen anywhere. You sit in a small wooden booth by yourself so that you can "focus on the flavor".
 
 ### Favorite All Vegan Spots
 
