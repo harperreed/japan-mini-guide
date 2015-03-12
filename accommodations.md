@@ -9,8 +9,11 @@ Lets cover in no particular order:
 
 * Hotel Unizo (Shibuya) - Only slightly less convenient than Granbell, Unizo is about 5 minutes walk from the station and more in the heart of Shibuya, directly across the street from Tokyu Hands and Parco department stores. Similar pricing to Granbell but doesn't include breakfast. For a first trip this might be a better option as it feels more like being in the center of it all.
 
+* Hotel Century Southern Tower (Shinjuku) - Very convienient to Shinjuku station. Quick walk to Tokyu hands. Usually a good intersection of value and convenience. 
 
-- Not cheap places to stay (tokyo)
-- Onsen
-- Country side
-- camping
+
+**Not cheap places to stay (tokyo)**
+**Other cities**
+**Onsen**
+**Country side**
+**camping**
