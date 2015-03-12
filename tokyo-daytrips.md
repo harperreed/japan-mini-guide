@@ -1,0 +1,1 @@
+Mt Mitake Hike - http://www.japan-guide.com/e/e3036.html

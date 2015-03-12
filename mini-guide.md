@@ -60,18 +60,25 @@ Imperial Palace -
 Watching an American movie in Tokyo - a hilarious experience. Pretty fun.
 - Harajuku - really insane neighborhood. A place to look for crazy people. I like it there. We HAVE to go and stare. Wear your mohawk.
 - Roppongi hills - a neat upscale mall/neighborhood
+- Omotesando - Like the Champs Elysees of Tokyo. 
 
 Obviously this is a very limited list. I imagine that there are a lot of places we could visit. We should probably just play it by ear!
 
 ##Interesting things:
-- Not everywhere takes credit cards. But there are a lot of ATMS around. Specifically postal ATMS. They have the best transfer rate and are open more often than crazy Japanese bank ATMS.
+- Not everywhere takes credit cards. But there are a lot of ATMS around. Specifically postal ATMS. They have the best transfer rate and are open more often than crazy Japanese bank ATMS. Be careful because ATMs often close at 9pm. I have no idea why.
 - Bathrooms are almost always clean and easy to find.
-- We will attempt to get a mobile phone for us to use.
+- We will attempt to get a mobile phone for us to use. If you have multiple people in your group, renting a Mobile Hotspot at the airport can be a great deal. The 4G ones are often faster than the hotel internet.
 - There are a lot of little tiny gifts that are perfect for bringing back to friends and super inexpensive.
 - Food is easy to find - so if for some reason a restaurant doesn't work out - never fear! We can easily find another quick place nearby.
 - The trains end at midnight. So unless we are near our Hotels, we will probably be home around 1am.
 - The trains are awesome and easy to understand. There are few places that don't have English - and most of the time it is easy to get around.
 - One of the most fun times my father and I had was when we got lost.
 - Japanese people are made of plants.
+- Most people in Tokyo seem to speak at least some English.
 - There are an insane amount of things to see.
 - There are vending machines every 3 feet. This is because you will need a new tea every 3 or 4 foot.
+- There are no trash cans, except next to vending machines.
+- Basically every restaurant is good. I've never gone wrong just walking into some random place.
+- All the good shops and restaurants are not on the big streets. You need to go one block off in either direction to find the back streets where everything is. Big streets are just for driving.
+- Google maps is super effective in Tokyo.
+- Everyone is very quiet. If you find yourself on a busy street you should try taking a moment to notice that there's no noise or yelling.
