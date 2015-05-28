@@ -1,30 +1,23 @@
-Japan Mini-guide
+Hackers Guide To Japan
 ====
 
-**TERRIBLY ORGANIZED**
-**IF YOU WANT TO HELP PLEASE EMAIL HARPER: HARPER@NATA2.ORG**
+##Where to start
 
-In 2006 when i started going to japan regularly, I couldn't find any quick and easy resources to help me understand how to handle japan. There were a lot of travel books, but nothing that really helped me figure out wtf japan was going to be like and how i could hack my japanese travel. 
+This guide is a collection of lists. We felt that this was the best way to display information about Japan. 
 
-I wanted to know things like:
-
-- Where is the best metal bar? 
-- Where can i get the best ramen?
-- Why are the 7/11s so awesome?
-- What are gatcha gacha balls
-- Do i need to know japanese?
-- Does anyone speak english? 
-- What do i do about my giant tattoo?
-
-I could do a LOT of research and find SOME answers, but there was nothing that was "A hackers guide to Japan." 
-
-Around 2007, my parents, brother and his partner decided to come to Japan and visit with Hiromi and myself. As a way to get them up to speed, I decided to whip up the first version of this terrible book. 
-
-It was mostly a list of things that I had found hilarious. It was probably terrible and not helpful - but it was based on all my random experiences. 
-
-I keep sending the original book to various friends and I regret it every time. I keep thinking "I should really rewrite that terrible guide." So, here we go...
+The best place to dive in is the [Pro-tips](protips.md) section. 
 
 
+##Background
 
+This started as a very simple "guide" to Japan based on the experiences of @seanbonner and myself. We were always being asked various Japanese travel queries by friends. We wanted to make a simple "Hackers Guide To Japan."
 
+Since this is such a HUGE topic - it became unwieldy. 
 
+However, in asking people for help, we noticed that everyone has a list. 
+
+So, the "Hackers guide to Japan" has turned into a collection of lists that are contributed by ourselves and our friends. 
+
+In some cases they are community generated and others they are aggressively proscriptive. 
+
+Obviously YMMV. 
