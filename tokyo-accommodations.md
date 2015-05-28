@@ -12,8 +12,4 @@ Lets cover in no particular order:
 * Hotel Century Southern Tower (Shinjuku) - Very convienient to Shinjuku station. Quick walk to Tokyu hands. Usually a good intersection of value and convenience. 
 
 
-**Not cheap places to stay (tokyo)**
-**Other cities**
-**Onsen**
-**Country side**
-**camping**
+
